@@ -1,1 +1,1 @@
-# geon.github.io
+View my resume at https://geonlee.github.io/
